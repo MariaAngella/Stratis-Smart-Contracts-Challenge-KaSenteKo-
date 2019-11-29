@@ -1,0 +1,1 @@
+# Stratis-Smart-Contracts-Challenge-KaSenteKo-
